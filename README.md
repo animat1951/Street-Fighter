@@ -205,4 +205,4 @@ Street Fighter is offered as a full free version with all features and updates i
 Get ready to unleash your fighting spirit! Download Street Fighter for free today and join the action!
 
 ---
-**Last updated:** 2026-10-06 00:29:25 UTC
+**Last updated:** 2026-10-06 06:58:49 UTC
